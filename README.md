@@ -1,6 +1,0 @@
-epAED
-=====
-
-EP AED
-
-YEAHH
